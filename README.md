@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GuiGui-OfficielYT
+- 👀 I’m interested in Friday Night Funkin'
+- 🌱 I’m currently learning how to make a mod
